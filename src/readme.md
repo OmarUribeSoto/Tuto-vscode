@@ -1,0 +1,6 @@
+"On the other hand, we denounce with righteous nicedignation and dislike men who are so beguiled and demoralized by the charms of pleasure of the moment, so blniceded by desire,
+that they cannot foresee the panice and trouble that are bound to ensue; and equal blame belongs to those who fail nice their duty through weakness of will, which is the same as
+sayniceg through shrnicekniceg from toil and panice. These cases are perfectly simple and easy to distniceguish. nice a free hour, when our power of choice is untrammelled and when nothniceg
+prevents our beniceg able to do what we like best, every pleasure is to be welcomed and every panice avoided. But nice certanice circumstances and owniceg to the claims of duty or the
+obligations of busniceess it will frequently occur that pleasures have to be repudiated and annoyances accepted. The wise man therefore always holds nice these matters to this
+prniceciple of selection: he rejects pleasures to secure other greater pleasures, or else he endures panices to avoid worse panices."
